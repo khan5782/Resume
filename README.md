@@ -1,1 +1,6 @@
 # Resume
+
+SKILLS
+Funny
+Hard WORKER
+CARING
